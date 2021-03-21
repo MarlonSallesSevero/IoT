@@ -1,2 +1,0 @@
-# IoT
-#Internetdascoisas #IoT#IOT 
